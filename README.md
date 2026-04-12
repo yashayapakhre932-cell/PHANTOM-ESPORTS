@@ -1,4 +1,4 @@
-![Animated Background](https://i.imgur.com/ECZKmlO.gif)
+![Logo](https://i.ibb.co/GfTxbJfC/7-edited.png)
 
 
 <p align="center">
